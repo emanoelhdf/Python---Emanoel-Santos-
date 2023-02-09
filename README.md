@@ -3,4 +3,4 @@
 
 by Emanoel Santos
 
-* [Acesse meu whatsapp clicando aqui -->](https://wa.me/5594992574521?text=Ola!%20Emanoel%20)
+* [Acesse meu whatsapp clicando aqui](https://wa.me/5594992574521?text=Ola!%20Emanoel%20)
